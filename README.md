@@ -1,2 +1,2 @@
-# belajar-ngoding
+# belajar ngoding
 puyeng bang
